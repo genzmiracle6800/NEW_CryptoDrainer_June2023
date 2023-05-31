@@ -1,4 +1,4 @@
-# THIS IS A DEMO. TO BUY THE FULL REPOSITORY CONTACT ME ON TELEGRAM http://t.me/Crypto_Mikkei
+# THIS IS A DEMO. TO BUY THE FULL REPOSITORY CONTACT ME ON TELEGRAM http://t.me/Crypto_Mikei
 # PRICE 0.02 BTC
 # 💡 Features
 * Simple design
