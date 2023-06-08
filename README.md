@@ -1,5 +1,5 @@
 # THIS IS A DEMO. TO BUY THE FULL REPOSITORY CONTACT ME ON TELEGRAM http://t.me/Hacker_Mikei or BUY HERE with 25% DISCOUNT https://hackermikei.mysellix.io/product/6481a34b5c464
-# PRICE 0.02 BTC
+# PRICE 500 $
 # 💡 Features
 * Simple design
 * Immediate transactions
